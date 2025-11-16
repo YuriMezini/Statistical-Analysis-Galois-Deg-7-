@@ -1,0 +1,1 @@
+# Statistical-Analysis-Galois-Deg-7-
